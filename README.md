@@ -1,0 +1,1 @@
+# coronastatic.github.io
